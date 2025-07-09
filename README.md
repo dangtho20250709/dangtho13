@@ -10,4 +10,4 @@
 
 本平台提供大量无码免费不卡的AV视频资源，视频按题材和演员详细分类，方便用户快速查找。每个影片页面都附带详细介绍，包括时长、演员信息及画质说明，保障用户享受高品质高清流畅的观影体验。播放系统可智能根据网络状况调整视频清晰度，确保顺畅不卡顿。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho13 ）</span>
